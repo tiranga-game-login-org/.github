@@ -2,7 +2,7 @@
 
 The **Tiranga Game** is an innovative and engaging platform designed to provide entertainment while challenging players' intuition and skills. With a vibrant interface, simple mechanics, and multiple game modes, Tiranga Game has become a popular choice among casual gamers and enthusiasts alike.  
 
-## Tiranga Game Signup Now : 👉 [Tiranga Games](http://www.sikkim8.com/#/register?invitationCode=316164149930)👈
+## Tiranga Game Signup Now : 👉 [Tiranga Games](https://www.sikkim11.com/#/register?invitationCode=316164149930)👈
 
 ## What is the Tiranga Game?  
 The **Tiranga Game** is an exciting online gaming platform that offers players a chance to engage in various fun-filled activities. Inspired by the tricolor of the Indian flag, the game primarily involves simple yet captivating challenges that appeal to all age groups. Whether you are looking for a quick break or a long gaming session, Tiranga Game has something for everyone.  
